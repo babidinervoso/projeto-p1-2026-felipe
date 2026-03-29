@@ -1,1 +1,1 @@
-# projeto-p1-2026-felipe
+# Projeto Pessoal 1, 2026, Felipe Freitas Rebouças
